@@ -1,3 +1,5 @@
+Typing something else in the rdoc to see what happens here.
+
 == Welcome to Rails
 
 Rails is a web-application framework that includes everything needed to create
