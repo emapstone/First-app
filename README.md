@@ -1,1 +1,1 @@
-I'll be there for you. When the rain starts to fall. I'll be there for you. Cause you're there for me too. Ohh.
+Second changes! I'll be there for you. When the rain starts to fall. I'll be there for you. Cause you're there for me too. Ohh.
